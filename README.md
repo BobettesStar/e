@@ -1,4 +1,7 @@
 .
 Hi ! Bobette is my f/o ! Dbls int ! C+h and bmf pls ! ^^
 
-dni : pro shippers, dark shippers, racists, homophobes and skin stealers .
+dni : pro shippers, dark shippers, racists, homophobes, qw*l supporters and skin stealers .
+
+DNI LIST.
+1. bottlesnumberonehugger3 . dni omg
